@@ -1,1 +1,1 @@
-My first readme
+Kennedy is my guy
